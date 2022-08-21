@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sai-0324
+- 👋 Hi, I’m SAIKIRAN
 - 👀 I’m interested in ... learning new things 
 - 🌱 I’m currently studying engineering 3rd year 
 - 💞️ I’m looking to collaborate on ...
